@@ -1,1 +1,1 @@
-# Submission-Fundamental-Front-End-Webiste-DICODING
+# Submission Fundamental Front End Webiste (DICODING)
